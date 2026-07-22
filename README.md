@@ -53,7 +53,7 @@ Je suis à la recherche d'une **entreprise d'accueil pour un contrat d'apprentis
 ## 📫 Me contacter
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/julian-leandro-montilla-bustos-926ab3423/)
-- 📧 j.montillabustos@myskolae.fr
+- 📧 julianleanndromontillabustos@gmail.com
 - 📞 +33 7 45 12 93 33
 
 ---
